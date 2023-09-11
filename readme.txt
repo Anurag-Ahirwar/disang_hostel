@@ -28,14 +28,6 @@ vishalmeena2486@gmail.com
 Vishal123 //password
 
 
-Group name Spartans 
-Vishal Meena 200101110
-Deep Kaur 200101028
-Vanshita 200101103
-Shashank 200101092
-Mihir sagar 200101065
-
-
 
 
 
